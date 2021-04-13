@@ -1,1 +1,1 @@
-# semahattinkartboga.com
+# semahattinkartboga
