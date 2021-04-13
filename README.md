@@ -1,0 +1,1 @@
+# semahattinkartboga.com
